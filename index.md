@@ -1,4 +1,4 @@
-hello！my sheep.:
+hello！my sheep:
    I very lucky can to meet have you and can happiness to like you.
                                                 
                                               
