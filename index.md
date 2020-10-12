@@ -1,6 +1,6 @@
 你好！
-  我的羊 我很幸运认识你，也很高兴喜欢你。
+  my sheep. I very lucky can to meet have you and can happiness to like you.
                                                 
                                               
-                                                     像你一样，你傻笨猪
+                                                     like you，your 傻笨猪
                                                           2020/10/12
